@@ -1,2 +1,5 @@
-# badnewsfile
-badnewsfile.........
+''A781BDE948A21BEE58282': no/repeat
+
+
+
+
